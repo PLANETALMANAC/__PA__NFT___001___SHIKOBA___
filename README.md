@@ -1,0 +1,3 @@
+# __PA__NFT___001___SHIKOBA___
+__NFT__RELEASE___SHIKOBA__PLANET_ALMANAC_
+https://www.youtube.com/channel/UCyu2ykWOHFrfDdCsl2CPICQ/videos
